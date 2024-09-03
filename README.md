@@ -1,1 +1,1 @@
-Frio e calculista🚬
+Frio e calculista🚬💸
